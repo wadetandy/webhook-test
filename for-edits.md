@@ -18,8 +18,7 @@ four loko.
 Tumblr kinfolk XOXO tofu drinking vinegar, meggings bicycle rights readymade etsy meditation
 you probably haven't heard of them skateboard retro chillwave. Mixtape bicycle rights pickled
 kinfolk readymade organic, poutine flannel chartreuse lo-fi you probably haven't heard of them
-seitan butcher. Bicycle rights tilde green juice polaroid, organic gluten-free pinterest bespoke.
-Narwhal tousled put a bird on it 90's raw denim brooklyn, quinoa YOLO tacos ennui microdosing.
+seitan butcher. Bicycle-m brooklyn, quinoa YOLO tacos ennui microdosing.
 90's tofu pork belly roof party echo park, flannel vinyl portland beard meggings intelligentsia
 polaroid. Occupy microdosing migas, tilde cardigan shoreditch bushwick venmo normcore vice
 vegan lo-fi polaroid banjo. Four dollar toast trust fund neutra, try-hard bushwick salvia
